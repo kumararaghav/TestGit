@@ -1,2 +1,1 @@
-# TestGit
-Test using git command shell
+VimCrypt~01!Зv∙╛ЙA┤╙о:Tyя8\─CаYo*-#ГjС?[И7\Хkепр╒Nё?чў▄╚╘v+рЎPР├№╜ФЪ
